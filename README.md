@@ -1,6 +1,6 @@
 ( i have no clue how to add pictures and gifs oops )
 
-Online SYS! please int with care & CHECK OUT MY LINKS >.<
+questioning online sys!! 
 
 <!--
 **Skruncle/skruncle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
