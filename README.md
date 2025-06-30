@@ -1,6 +1,4 @@
-( i have no clue how to add pictures and gifs oops )
-
-questioning online sys!! 
+ i have no clue how to add pictures and gifs oops 
 
 <!--
 **Skruncle/skruncle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
