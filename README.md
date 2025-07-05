@@ -1,5 +1,7 @@
  i have no clue how to add pictures and gifs oops 
 
+! [](https://upload.wikimedia.org/wikipedia/commons/1/14/Rain_World_animation_-_Room_Run_sm.gif?20170328060811)
+
 <!--
 **Skruncle/skruncle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
