@@ -1,4 +1,4 @@
-this shit is AASSSS please ignore my outdated... eveyrhitng
+working on replacing/fixing links ^_^ may be outdated :eyes:
 <!--
 **Skruncle/skruncle** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
